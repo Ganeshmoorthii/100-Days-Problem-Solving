@@ -54,7 +54,7 @@ Contributions are welcome! If you have any suggestions or improvements, feel fre
 Feel free to reach out to me if you have any questions or suggestions!
 
 - **Email**: mgmoorthi2004@gmail.com
-- **LinkedIn**: [Your LinkedIn Profile](https://www.linkedin.com/in/m-ganesh-moorthi-903798258/)
+- **LinkedIn**: [My LinkedIn Profile](https://www.linkedin.com/in/m-ganesh-moorthi-903798258/)
 
 ---
 
